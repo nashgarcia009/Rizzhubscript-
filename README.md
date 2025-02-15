@@ -1,0 +1,2 @@
+# Rizzhubscript-
+Made by Nash
